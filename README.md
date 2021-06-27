@@ -11,8 +11,6 @@ Nếu có thể hãy Donate để hỗ trợ cho tác giả :
 
 Số tài khoản : 
 
-0351000837001
-VietCombank
-Pham Van Bao
-
-Cảm ơn,
+0351000837001 - 
+VietCombank -
+Pham Van Bao 
